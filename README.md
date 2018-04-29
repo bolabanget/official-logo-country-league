@@ -6,3 +6,4 @@ Official logo of country league
 
 ## Liga 1 Indonesia
 - https://liga-indonesia.id/assets/2018/img/liga.png
+- https://pbs.twimg.com/media/DY5xvXRWsAAUgXJ.jpg:large
